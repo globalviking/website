@@ -1,7 +1,11 @@
 Olá!
 
-Meu nome é Ivar e eu faço sites, configuração de servidores e resolvo problemas de TI.
+Meu nome é Ivar e eu faço marketing, sites, configuração de servidores e resolvo problemas de TI.
 
-Fico emocionado ouvindo [música](https://www.youtube.com/watch?v=7wtfhZwyrcc) e gosto de [história](https://www.youtube.com/watch?v=bBkdLzya3B4).
+[Veja alguns dos sites que eu já fiz.](https://ivarcastro.com/sites) 
 
-Nesse site eu vou postar coisas relacionadas a TI, ou talvez eu transforme o site em um blog de coaching de estilo de vida e mande vocês fazerem exercício, meditarem e arrumarem a casa.
+Se estiver querenda algum tipo de ajuda é só entrar em contato.
+
+Email: [ivar@ivarcastro.com](mailto:ivar@ivarcastro.com)
+
+[Adorei essa animação supostamente baseada em fatos reais.](https://www.youtube.com/watch?v=bBkdLzya3B4)
